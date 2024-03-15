@@ -1,4 +1,4 @@
-Final Assignment Video Prject Preview
+Final Assignment Video Project Preview
 
 Video Link: https://drive.google.com/drive/folders/13uZo0tky40rHBA8-adnpREpeMG4STiKu?usp=sharing
 
